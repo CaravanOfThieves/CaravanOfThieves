@@ -6,11 +6,11 @@
 
 <div align="center">
 
-expect me to unconsciously mirror your personality or energy. i do it by habit.
+im gonna fucking kms >_<< /nsrs
 </div>
 
 <div align="center">
 
-[rentry](https://rentry.co/gambledprayers) · [hoard](https://rentry.co/nakohoard)
+[rentry](https://rentry.co/-prettiestprincess) · [hoard](https://rentry.co/nakohoard)
 
 </div>
