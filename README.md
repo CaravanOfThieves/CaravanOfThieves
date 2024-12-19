@@ -6,7 +6,11 @@
 
 <div align="center">
 
-homicipher gooners dni, yall freak me out like theyre fictional bro
+homicipher gooners dni, im aware im part of the fandom but some of yall freak me out like theyre fictional bro
+</div>
+
+<div align="center">
+github is a work in progress, as is my rentry
 </div>
 
 <div align="center">
