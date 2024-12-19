@@ -11,6 +11,6 @@ homicipher gooners dni, yall freak me out like theyre fictional bro
 
 <div align="center">
 
-[rentry](https://rentry.co/-prettiestprincess) · [hoard](https://rentry.co/nakohoard)
+[rentry](https://rentry.co/-prettiestprincess) · [hoard](https://rentry.co/nakoshoard)
 
 </div>
