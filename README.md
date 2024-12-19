@@ -6,7 +6,7 @@
 
 <div align="center">
 
-im gonna fucking kms >_<< /nsrs
+homicipher gooners dni, yall freak me out like theyre fictional bro
 </div>
 
 <div align="center">
