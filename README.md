@@ -15,7 +15,7 @@ github is a work in progress, as is my rentry
 
 <div align="center">
 
-[rentry](https://rentry.co/-prettiestprincess) · [hoard](https://rentry.co/nakoshoard)
+[rentry](https://rentry.co/-prettiestprincess) · [hoard](https://rentry.co/nakoshoard) · [retrospring](https://retrospring.net/@anthropicdesire)
 
 </div>
 
