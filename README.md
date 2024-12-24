@@ -14,6 +14,10 @@ github is a work in progress, as is my rentry
 </div>
 
 <div align="center">
+i tend to follow homi fans on this acc !! if i follow back i probably wanna byf ^_^
+</div>
+
+<div align="center">
 
 [rentry](https://rentry.co/-prettiestprincess) · [hoard](https://rentry.co/nakoshoard) · [retrospring](https://retrospring.net/@anthropicdesire)
 
