@@ -1,6 +1,6 @@
 <div align="center">
   
-![](https://komarev.com/ghpvc/?username=CaravanOfThieves&color=yellow&label=dinner_is_served!)
+![](https://komarev.com/ghpvc/?username=CaravanOfThieves&color=yellow&label=guests_at_the_dining_table)
 
 </div>
 <div align="center">
