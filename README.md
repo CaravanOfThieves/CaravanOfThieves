@@ -5,6 +5,17 @@
 </div>
 <div align="center">
   
+![](https://files.catbox.moe/rr3737.png)
+</div>
+<div align="center">
+  
+dey buly me... ;-;
+
+  
+</div>
+
+<div align="center">
+  
 pfp @ owll_zxyzx on twt
 
 </div>
