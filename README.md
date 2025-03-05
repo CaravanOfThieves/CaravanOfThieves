@@ -6,7 +6,7 @@
 
 <div align="center">
   
-hi im nako,, im 16 and i like 2 play roblox and talk to my friends on the computer...
+hi im nako,, i like 2 play roblox and talk to my friends on the computer...
 
 </div>
 <div align="center">
