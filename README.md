@@ -3,6 +3,12 @@
 ![](https://komarev.com/ghpvc/?username=CaravanOfThieves&color=yellow&label=dinner_is_served!)
 
 </div>
+<div align="center">
+  
+pfp @ owll_zxyzx on twt
+
+</div>
+<div align="center">
 
 <div align="center">
   
