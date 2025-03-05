@@ -22,7 +22,7 @@ lowkey socially awkward until i warm up to you,, this may take a while or like a
 </div>
 <div align="center">
   
-please c+h, i encourage both that and any other forms of interaction ; aspiring to learn luau !! if you have tips hmu ^_^
+please c+h, i encourage both that and any other forms of interaction ; im aspiring to learn luau !! (im a total newbie), if you have tips hmu ^_^
 
 </div>
 <div align="center">
