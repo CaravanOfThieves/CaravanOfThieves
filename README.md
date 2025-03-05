@@ -29,5 +29,9 @@ doing my best to learn 2 code on roblox so i can make horror games w oomf (bhelp
 read my [byi](https://rentry.co/dollicore) if you want 2 strike up conversation please
 
 </div>
+<div align="center">
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31xu3wwd6hv7usmrqh2dnoppcqbq&cover_image=true&theme=natemoo-re&show_offline=true&background_color=3e1919&interchange=false&bar_color=4e93b1&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
+
+</div>
 
