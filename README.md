@@ -6,28 +6,22 @@
 
 <div align="center">
   
-hi im nako i like 2 play roblox and talk to my friends on the computer...
+hi im nako,, im 16 and i like 2 play roblox and talk to my friends on the computer...
 
 </div>
 <div align="center">
   
-lowkey socially awkward until i warm up to you,, this may take a while or we might just click so be warned if you feel like im dry or shy
+lowkey socially awkward until i warm up to you,, this may take a while or like a few hours so be warned if you feel like im dry or shy
 
 </div>
 <div align="center">
   
-you may see me offtab often,, OR see me surprisingly active on ponytown despite not speaking - its because im either working on something or somehow focused on cute little colourful pixels zooming by on my screen. (im not some person glued to their laptop watching people on ponytown trust me this RARELY happens)
+please c+h, i encourage both that and any other forms of interaction ; aspiring to learn luau !! if you have tips hmu ^_^
 
 </div>
 <div align="center">
   
-doing my best to learn 2 code on roblox so i can make horror games w oomf (bhelp nme im so lost)
-
-</div>
-<div align="center">
-  
-read my [byi](https://rentry.co/dollicore) if you want 2 strike up conversation please
-
+[byi](https://rentry.co/dollicore) · [retrospring](https://retrospring.net/@anthropicdesire) · [strawpage me](https://akoswonderland.straw.page)
 </div>
 <div align="center">
 
