@@ -3,9 +3,17 @@
 ![](https://komarev.com/ghpvc/?username=CaravanOfThieves&color=yellow&label=guests_at_the_dining_table)
 
 </div>
+
+<div align="center">
+  
+![](https://files.catbox.moe/k01icq.png)
+  
+</div>
+
 <div align="center">
   
 ![](https://files.catbox.moe/rr3737.png)
+
 </div>
 <div align="center">
   
